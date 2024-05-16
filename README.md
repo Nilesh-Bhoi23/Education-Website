@@ -8,3 +8,5 @@
 
 
 ![Screenshot 2024-05-16 200017](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/17eccd33-b3e9-4c97-a399-fbc68d90f962)
+
+![Screenshot 2024-05-16 200031](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/458b0d04-0b01-4869-ab86-9f5b3f32def7)
