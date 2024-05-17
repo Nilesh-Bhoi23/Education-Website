@@ -12,3 +12,5 @@
 ![Screenshot 2024-05-16 200031](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/458b0d04-0b01-4869-ab86-9f5b3f32def7)
 
 ![Screenshot 2024-05-16 200044](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/edb57a3c-d8db-4138-ad30-564b956eed0b)
+
+![Screenshot 2024-05-17 212419](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/43f4a05c-d84b-43bc-8814-d7263cdafe81)
