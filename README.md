@@ -15,4 +15,7 @@
 
 ![Screenshot 2024-05-17 212419](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/43f4a05c-d84b-43bc-8814-d7263cdafe81)
 
-![Screenshot 2024-05-17 212449](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/3e776b87-fddf-41b8-876b-094b2265e332)
+![Screenshot 2024-05-17 212449](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/3e776b87-fddf-41b8-876b-094b2265e332
+
+![Screenshot 2024-05-17 212519](https://github.com/Nilesh-Bhoi23/Education-Website/assets/147185281/f8286824-f907-4be5-b67b-c452341a50b4)
+
